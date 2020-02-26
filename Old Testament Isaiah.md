@@ -1,6 +1,6 @@
 
 
-Isaiah 10: 1-13
+Isaiah 10: 1-13 New International Version
 
 
 Woe to those who make unjust laws,
