@@ -14,4 +14,4 @@ Persecutors of the good, haters of truth, lovers of lies, knowing not the reward
 CHAPTER 16
 Warning that the end is at hand
 
-Then shall the creation of mankind come to the fiery trial and "many shall be offended" and be lost, but "they who endure" in their faith "shall be saved" by the curse itself.  6 And "then shall appear the signs" of the truth. First the sign spread out in Heaven, then the sign of the sound of the trumpet, and thirdly the resurrection of the dead: 7 but not of all the dead, but as it was said, "The Lord shall come and all his saints with him." 8 Then shall the world "see the Lord coming on the clouds of Heaven."
+Then shall the creation of mankind come to the fiery trial and "many shall be offended" and be lost, but "they who endure" in their faith "shall be saved" by the curse itself. And "then shall appear the signs" of the truth. First the sign spread out in Heaven, then the sign of the sound of the trumpet, and thirdly the resurrection of the dead: but not of all the dead, but as it was said, "The Lord shall come and all his saints with him." Then shall the world "see the Lord coming on the clouds of Heaven."
