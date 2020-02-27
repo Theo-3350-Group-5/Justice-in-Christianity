@@ -1,6 +1,6 @@
 
 
-Romans 2:1-16 New International Version
+Romans 2: 1-16 New International Version
 
 1 You, therefore, have no excuse, you who pass judgment on someone else, for at whatever point you judge another, 
   you are condemning yourself, because you who pass judgment do the same things.
